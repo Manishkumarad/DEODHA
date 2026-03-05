@@ -531,8 +531,8 @@ copies or substantial portions of the Software.
 
 ## 📞 Contact
 
-- **📧 Email**: support@dcodha.com
-- **📱 Phone**: +91 98765 43210
+- **📧 Email**: manishkumards37@gmail.com
+- **📱 Phone**: +91 9135112405
 - **🌐 Website**: [www.dcodha.com](https://www.dcodha.com)
 - **📱 WhatsApp**: +91 98765 43210
 
